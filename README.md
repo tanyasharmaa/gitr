@@ -1,4 +1,4 @@
-# I'm a Husband, Father, Developer, and Teacher!!
+# I'm a STUDENT !1
 - 🔭 Check out my VS Code course: [Become A VS Code SuperHero!][course]!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
