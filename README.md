@@ -1,4 +1,4 @@
-# I'm a STUDENT !!
+# I'm Engineering STUDENT !!
 - 🔭 Check out my first portfoli https://tanyasharmaa.github.io/portfolio-/
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
